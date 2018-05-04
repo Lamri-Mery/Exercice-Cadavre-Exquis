@@ -19,3 +19,8 @@ Bonne chance.
 
 >_Vivement **la** sieste._
 
+Du coup j'ai faim et soif :/
+
+C'est quand la pose?
+
+Qui vient boire ce soir?
