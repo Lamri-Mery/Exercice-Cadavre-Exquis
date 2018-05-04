@@ -8,6 +8,14 @@ Mike Johson a toujours eu le projet de se distiguer dans le monde varier de la t
 
 Cette grande entreprise a commencé ...
 
+
 Cette histoire n'aura aucun sense car je ne le lirais pas :P
 Je passe très vite à la phrase suivante.
 Bonne chance.
+
+>*Je pris une pause avant de reprendre mon histoire.*
+
+>**Une bonne tasse de thé avec un gros gateau.**
+
+>_Vivement **la** sieste._
+
