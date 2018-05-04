@@ -7,3 +7,10 @@ Mike Johson a toujours eu le projet de se distiguer dans le monde varier de la t
 
 
 Cette grande entreprise a commencé ...
+
+
+>*Je pris une pause avant de reprendre mon histoire.*
+
+>**Une bonne tasse de thé avec un gros gateau.**
+
+>_Vivement **la** sieste._
