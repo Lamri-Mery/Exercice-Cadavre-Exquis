@@ -19,8 +19,13 @@ Bonne chance.
 
 >_Vivement **la** sieste._
 
+<<<<<<< HEAD
 Du coup j'ai faim et soif :/
 
 C'est quand la pose?
 
 Qui vient boire ce soir?
+=======
+>**Vivement le week-end**
+
+>>>>>>> efccd36feca4389acf8b323407c46518ee42da9f
