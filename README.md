@@ -29,3 +29,6 @@ Qui vient boire ce soir?
 >**Vivement le week-end**
 
 >>>>>>> efccd36feca4389acf8b323407c46518ee42da9f
+  
+  Qu'est-ce qui est vert, qui tourne très très vite et qui devient rouge ?
+Une grenouille dans un mixer   moi j'veux boire! 
