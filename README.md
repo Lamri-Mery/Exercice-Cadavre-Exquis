@@ -19,3 +19,5 @@ Bonne chance.
 
 >_Vivement **la** sieste._
 
+>**Vivement le week-end**
+
